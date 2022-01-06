@@ -1,4 +1,11 @@
-###  Never give up👋
+###  Never give up👋 
+### Be Fast
+-Believe
+-Exercise
+-Forget
+-Active
+-State
+-Teach
 
 
 <!--
